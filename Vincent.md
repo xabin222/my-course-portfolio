@@ -12,7 +12,7 @@ Three things I enjoy doing:
 
   ## Ingredients
   - 200g Vietnamese rice noodles
-  - 2 kg of beef
+  - 2 kg of beef brisket
   - aromatic spices: cinnamon, ginger, star anise, pepper, black cardamom.
   -  1 tablespoon coriander seeds  
   - 1 tablespoon salt  
@@ -20,15 +20,15 @@ Three things I enjoy doing:
   - 4 liters of water.
 
     ## Cooking Steps
-- **Clean the bones and meat**: Boil water for 5 minutes to remove impurities. Drain and rinse with clean water.
-- Toast the spices (cinnamon, star anise, cardamom, cloves, coriander seeds) in a dry pan until fragrant. Put them in a spice bag or cheesecloth.
--  Add grilled onion, ginger, and spice bag into the pot.
-- Simmer the broth for **at least 4 hours**. Skim off foam and fat regularly.
-- After 1.5–2 hours, remove the brisket and let it cool. Slice it thinly for serving.
-- Add salt and fish sauce to taste. Strain the broth before serving.
-- **Prepare the noodles**: Soak and cook rice noodles according to the package instructions.
-- **To serve**: Place noodles in a bowl, top with sliced brisket, pour hot broth over, and garnish with green onions, cilantro, and fresh herbs.
+- **Clean the meat**: Boil water for 5 minutes to remove impurities. Drain and rinse with clean water.
+- Toast the aromatic spices in a dry pan until fragrant and then put them in a small bag
+- Add grilled onion, ginger, and spice bag into the pot.
+- Boil the broth for **at least 4 hours** and remove foam and fat regularly.
+- After 1.5–2 hours, remove the brisket and let it cool and slice it.
+- Add salt and fish sauce to taste.
+- **Prepare the noodles**: cook rice noodles with boil water
+- **To serve**: Place noodles in a bowl and top with sliced brisket, then pour hot broth over and finish with with green onions and cilantro.
 
 **Tip:**  
-**Char the onion and ginger** over an open flame or in a hot pan — this gives the broth its rich, smoky flavor.  
-**Do not rush the simmering process** — slow cooking develops the deep, clear broth that makes pho special.
+**Don't cook beef brisket over 2 hours**  
+**Don't forget to put aromatic seasonings after cooking beef brisket because they may absorb an unpleasant odor** 
